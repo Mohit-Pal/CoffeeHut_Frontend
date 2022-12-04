@@ -36,3 +36,6 @@ Colombia |variety	The bud of the plants is bronzed
 Durable resistance to coffee rust attack
 Production equal to or greater than Caturra
 Type of bean and quality of beverage are similar to other varieties of arabica coffee| 5000
+# new entry
+tatina coffee 
+price 8000

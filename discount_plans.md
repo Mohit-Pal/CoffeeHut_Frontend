@@ -8,7 +8,8 @@
 .Check the Calculate Sales Tax *After* Applying the Discount box if you wish, this is optional. In most cases, the sales tax should be calculated before the coupon code is applied.
 .If you'd like to limit the use of the coupon code to a specific set of galleries, check the Limit the use to specific galleries option and then select the galleries that the code should be usable on.
 
-
+# new discount plan for the new customer is 45% on every product i added.
+this is new discount.
 
 
 
