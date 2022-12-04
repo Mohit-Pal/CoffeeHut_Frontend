@@ -1,3 +1,40 @@
+1.#Black coffee
+
+This is the simplest type of coffee drink you can make, as it comes straight out of your choice of coffee maker. It’s plain coffee with nothing added.
+
+2.#Black coffee with cream
+To make creamy black coffee, simply add milk, cream, or half and half to your coffee. This will smooth the flavors and tone down any bitterness from your coffee beans.
+
+3.#Black coffee with cream and sugar
+Add milk, cream, or half and half with a helping of sugar to your black coffee. This is an appealing combination for many coffee drinkers who prefer smooth, easy-drinking coffee.
+
+4.#Cold brew
+Low acidity and sweet, cold brew coffee is made by adding coarsely ground beans to cold water and letting the mixture brew for several hours. You can also make a cold brew mocha!
+
+![coldbrew](https://coffeeaffection.com/wp-content/uploads/2019/02/Cold-brew.webp)
+
+5.#Iced coffee
+Unlike cold brew, iced coffee is chilled hot coffee. Refrigerate your freshly brewed black coffee, add ice and maybe a splash of cream or sugar, and there you have it.
+
+6.#Turkish coffee
+Turkish coffee is made by repeatedly boiling very finely ground coffee with sugar. This process produces a frothy, lightly textured drink.
+
+#Authentic Turkish Coffee
+
+Turkish coffee is made by boiling water, sugar, finely-ground coffee, and cardamom. This brewing method goes back centuries, and it’s simple, fast, and intensely flavorful. Your spiced coffee awaits!
+Try this delicious recipe!
+Serving Greek coffee
+
+7.3Nitrous coffee
+Nitrous coffee is a fairly recent invention. Typically poured out of a tap like a glass of beer, nitrous coffee is cold brew with added nitrogen. This makes for a sweet, smooth drink with light carbonation.
+
+
+8.#Single or double espresso
+The basis of all espresso drinks is a shot of espresso, made by pushing pressurized hot water through finely-ground, tightly-tamped coffee. You can pull short and long (single and double) shots, which are one and two ounces respectively.
+
+![esprees](https://coffeeaffection.com/wp-content/uploads/2019/03/What-is-espresso.webp)
+
+10.Caffé Latte
 If you have a passion for coffee, you may be interested in starting your own coffee shop. However, as with the start of any business, careful planning is essential. Thorough research, site selection and detailed planning will start you on the road to success, well before you serve the first latte.
 
 #Develop a Business Plan
