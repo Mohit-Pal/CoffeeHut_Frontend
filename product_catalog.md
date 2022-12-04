@@ -58,3 +58,13 @@ As a baseline, if you have 100 transactions per day and the average sales receip
 
 The key to increasing your profit margin is to increase both sales and gross receipts, as some of your expenses will remain fixed. On average, within the industry, a small to medium-sized coffee shop can earn anywhere from $60,000 to $160,000 in personal income for the shop owner.
 
+Images
+![click! description image](https://www.istockphoto.com/photo/empty-cafe-interior-with-chairs-and-tables-gm1286692956-383122327)
+
+![click! description image](https://www.istockphoto.com/photo/wood-table-top-on-blur-restaurant-interior-background-gm1221913991-358369665?phrase=coffee%20shop)
+
+![click! description image](https://www.istockphoto.com/photo/staff-working-behind-counter-in-busy-coffee-shop-gm900816038-248529061?phrase=coffee%20shop)
+
+![click! description image](https://www.istockphoto.com/photo/empty-cafe-or-bar-interior-daytime-gm619738870-108141979?phrase=coffee%20shop)
+
+![click! description image](https://www.istockphoto.com/photo/young-man-using-laptop-in-cafe-and-listening-to-music-gm1033525840-276775974?phrase=coffee%20shop)
